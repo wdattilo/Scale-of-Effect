@@ -8,3 +8,7 @@ Which at each landscape, we made a 50 x 40 m quadrant (in which its center repre
 
 
 Corro, E. J., Ahuatzin, D. A., Aguirre, A., Favila, M. E., Ribeiro, M. C., Acosta, J. C. L., Dáttilo, W. 2019. Forest cover and landscape heterogeneity shape ant-plant co-occurrence networks in human-dominated tropical rainforests. Landscape Ecology 34: 93-104.
+
+# Contact
+
+If you have any further questions please do not hesitate to contact me: wdattilo@hotmail.com
